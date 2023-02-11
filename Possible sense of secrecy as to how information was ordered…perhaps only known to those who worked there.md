@@ -1,0 +1,1 @@
+[[This is still a common idea in certain types of government libraries though in the public sector, books and documents usually fall into certain categories]]
