@@ -1,0 +1,1 @@
+[[Medium - is flexible idea Graham, Shawn 01 16 2023]]

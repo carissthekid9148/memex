@@ -1,0 +1,1 @@
+[[Management of accumulated knowledge is carried out in libraries that are the treasure houses Kumar Shiv 2013 From Clay Tablets to Web Journey of Library Catalogue DESIDOC Journal of Library and Information Technology 33 1 45 to 54]]
