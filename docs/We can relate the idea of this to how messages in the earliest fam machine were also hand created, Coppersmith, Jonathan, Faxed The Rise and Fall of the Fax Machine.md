@@ -1,0 +1,1 @@
+[[A large part of the silk weaving practice was "hand done", Graham, Shawn 01 01 30 2023]]
