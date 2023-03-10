@@ -1,0 +1,1 @@
+[[Online sexuality was first seeded as a social force over two decades ago with the release of the first desktop computers and public computer networks in the mid-1980s]]
