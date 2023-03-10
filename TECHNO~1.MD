@@ -1,0 +1,2 @@
+[[This is not unlike how apps and websites such as Youtube, Pinterest, Instagram, Snapchat, Twitter, Facebook, etc. as well as a great many others can be curated by their users to have feeds that are completely personalized to them Standage Tom The Victorian Internet the remarkable story of the telegraph and the nineteenth centurys on-line pioneers]]
+
